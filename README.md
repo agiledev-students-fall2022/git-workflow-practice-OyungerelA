@@ -9,6 +9,13 @@ The [article](https://www.zdnet.com/article/the-future-of-the-web-will-need-a-di
 
 Overall, I found the article very fruitful and thought-provoking. As Web3 develops and becomes the norm, the work of software developers will certainly have to adjust to the changing digital environment, for better or for worse. Until then, we will have to keep up with current trends and technologies and learn to skillfully and quickly adapt to new environments rather than focusing solely on one tech stack. 
 
+Zulfkhar's Opinion:
+-----------
+
+* This looks very interesting article 🚀
+
+Name: Zulfkhar Maukey
+
 <br/>
 
 ### Comments
