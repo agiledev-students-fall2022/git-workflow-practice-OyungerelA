@@ -16,4 +16,11 @@ Zulfkhar's Opinion:
 
 Name: Zulfkhar Maukey
 
+<br/>
+
+### Comments
+
+Abraiz: It's interesting to see that besides traditional jobs, even developers will not be safe from the AI boom unless they adapt themselves to changing times.
+
+
     
